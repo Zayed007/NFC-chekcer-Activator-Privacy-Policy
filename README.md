@@ -1,0 +1,1 @@
+# NFC-chekcer-Activator-Privacy-Policy
